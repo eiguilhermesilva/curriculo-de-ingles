@@ -1,1 +1,1 @@
-# curr-culo-de-ingl-s
+# curriculo-de-ingles
